@@ -1,1 +1,1 @@
-https://Nikolai-Doroshenko.github.io/rsschool-cv/
+https://Nikolai-Doroshenko.github.io/rsschool-cv/cv
